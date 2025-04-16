@@ -12,3 +12,7 @@
 **[Click here to visit our site ✅](https://venomsoftware.io/product/fud-apk-crypter/)**
 
 **[Join Telegram Channel ✅](https://t.me/+HzAaarZkrPZhYzY0)**
+
+**⚠️ Disclaimer**
+
+**This repository is intended solely for educational and research purposes. The author is not responsible for any misuse of the information provided.**
